@@ -1,1 +1,1 @@
-# Nh-p-m-n-tr-tu-nh-n-t-o
+Nhập môn trí tuệ nhân tạo
